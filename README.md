@@ -9,8 +9,9 @@ PERSONAL EMAIL ID: SAHADKOKATANUR12@GMAIL.COM
 ADRESS: WARD NO,08 PENDARI GALLI JMKHANDI
 HOBBIES: PLAYING CRICKET, CHESS, WALI BALL
 ![20230918_100654](https://github.com/01fe23bme030/01fe23bme030/assets/145796919/93248802-2ba1-43b9-b07a-5d53efba30ba)
+I was very happy when I visited a new place that time I had taken this photo.
 ![Screenshot_20230924_185350_Gallery](https://github.com/01fe23bme030/01fe23bme030/assets/145796919/44e8068b-5b52-4b84-8257-120124623827)
-
+It was such a happy moment in my college 
 
 
 
